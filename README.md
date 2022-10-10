@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jcruzba
-- 👀 I’m interested in musis, technology and more things.
+- 👀 I’m interested in music, technology and more things.
 - 🌱 I’m currently learning about computer and developing.
 - 💞️ I’m looking to collaborate on some projects about I gonna learning and exchange experiences and knowledge.
 - 📫 How to reach me... I am online all time.
