@@ -1,4 +1,4 @@
-- 👋 ##Hi, I’m José Cruz
+- 👋 Hi, I’m José Cruz
 - 👀 I’m interested in music, technology and more things.
 - 🌱 I’m currently learning about computer and developing.
 - 💞️ I’m looking to collaborate on some projects about I gonna learning and exchange experiences and knowledge.
